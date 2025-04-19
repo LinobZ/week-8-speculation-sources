@@ -1,0 +1,12 @@
+# Week 8 Speculation Tracklist (In Order)
+- Super Monkey Ball - Monkey Billiards
+- Ape Escape - Title Screen
+- Bomberman Hero - Dessert HD
+- R4 / Ridge Racer Type 4 - On Your Way
+- Street Fighter III 3rd Strike - Alex & Ken stage Jazzy Nyc '99 Arranged 
+- Bomberman World - Planet Forest (Snakebomber)
+- Super Monkey Ball - Monkey Billiards Menu
+- Sheep Raider - Track 1 
+- Earthbound - Get on the Bus
+- Ape Escape - Training Room
+- Sheep Raider - Track 3
