@@ -67,3 +67,8 @@ Very disorganized source file, the video was meant to have a different structure
 
 ## Random Misc
 - Henry Stickmin Gameplay : https://www.youtube.com/watch?v=4gwK4lDUMX8-
+
+## Special Thanks
+- [Mahdi](https://samaadbae5.newgrounds.com/) *(Voicing the Ninjamuffin tweet)*
+- [Funkin' Wiki](https://fridaynightfunkin.wiki.gg)
+- [The Cutting Room Floor](https://tcrf.net/The_Cutting_Room_Floor)
